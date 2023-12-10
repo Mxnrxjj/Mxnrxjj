@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mxnrxjj
+- 👀 I’m interested in exploring tech
+- 🌱 I’m currently learning basics of coding
+- 💞️ I’m looking to collaborate on basic projects
+- 📫 How to reach me: search @mxnrxjj on insta
